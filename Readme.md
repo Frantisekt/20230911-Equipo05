@@ -1,3 +1,3 @@
 Francisco Parra  
-
-Cristian Crespin Diaz
+Cristian Crespin Diaz  
+Dante Samael Fernández Lago
