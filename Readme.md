@@ -1,3 +1,5 @@
-Francisco Parra  
-Cristian Crespin Diaz  
-Dante Samael Fernández Lago
+# **Cristian Crespin Diaz**
+
+## Perú
+
+Perú 😎
